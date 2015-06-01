@@ -9,10 +9,10 @@ Esta sencilla página web contiene las evidencias más destacadas durante la par
 # Primeros pasos
 Como todo sistema se necesita hacer un registro y en **Cambia tu tiempo** y si estás interesado en saber un poco más de este maravilloso programa puedes visitar su sitio web oficial de [Cambia tu tiempo](http://cambiatutiempo.mx/).
 Lo que debes hacer a grandes rasgos para poder participar es:<br>
-1. Registrarse en la página
-2. Proporcionar tus datos
-3. Contestar una encuesta
-4. Acudir a las oficinas para la entrega de documentación personal.
+1. Registrarse en la página<br>
+2. Proporcionar tus datos<br>
+3. Contestar una encuesta<br>
+4. Acudir a las oficinas para la entrega de documentación personal.<br>
 
 Luego de concluir estos cuatro pasos, ellos te informarán por medio de un e-mail que día y hora podrás acudir para recibir tu plática de inducción.
 
