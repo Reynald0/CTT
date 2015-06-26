@@ -32,3 +32,5 @@ En las pláticas de inducción muchas de las dudas fueron aclaradas. La reunión
  - Gorra blanca con logotipo de cambia tu tiempo
  - Camisa blanca con serigrafía de cambia tu tiempo
  
+# Actividades
+En realidad se puede resumir como actividad social o apoyo social, ya que uno elige la hora y el lugar donde puede ir a dar sus actividades. Creo que es una de los mejores aspectos del programa ya que ofrece la libertad y resposabilidad al mismo tiempo. Como todas las cosas el lado "malo" pertenece al compromiso al momento de solicitar la actividad, de esta forma se aplica una sanciòn si es que llegas a faltar, pero no todo està acabado ya que nos permiten cancelar la actividad con 24 horas de anticipaciòn y no te penalizaràn; esto solo lo puedes hacer tres veces por mes.
