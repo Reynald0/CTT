@@ -34,3 +34,12 @@ En las pláticas de inducción muchas de las dudas fueron aclaradas. La reunión
  
 # Actividades
 En realidad se puede resumir como actividad social o apoyo social, ya que uno elige la hora y el lugar donde puede ir a dar sus actividades. Creo que es una de los mejores aspectos del programa ya que ofrece la libertad y resposabilidad al mismo tiempo. Como todas las cosas el lado "malo" pertenece al compromiso al momento de solicitar la actividad, de esta forma se aplica una sanciòn si es que llegas a faltar, pero no todo està acabado ya que nos permiten cancelar la actividad con 24 horas de anticipaciòn y no te penalizaràn; esto solo lo puedes hacer tres veces por mes.
+
+### Parques
+Unas de las actividades que tienen permanencia en el programa de Cambia tu Tiempo es en los parques ya que se puede llegar a jugar con los niños, concientizar a la ciudadanía de mantener limpio esa área e incluso darle agua a los deportistas que se encuentren ahí. Los horarios tienen mucho que ver ya que el agua se ofrece a las primeras horas del día (de 7:00 a 9:00), posteriormente durante las tardes se llevan a cabo las otras dos actividades (de 16:00 a 18:00).
+
+### Cruceros
+Varias avenidas de la ciudad son muy concurridas y en ocasiones personas con discapacidad (aparente) necesitan cruzar de un extremo a otro, para esta actividad existen diversos horarios, los más generales son de 9:00 a 11:00, 13:00 a 15:00 y de 16:00 a 18:00. No siempre son los mismos cruceros; sin embargo, de la misma forma algunos se mantienen durante todo el mes. Los cruceros más obvios son escuelas primarias que se ubican en nuestra ciudad. Hay que orientar a los niños para poder cruzar la calle o en su caso mostrarles la forma más seguro y correcta de poder cruzarla.
+
+### Actividades ESPECIALES
+Se denominan así a aquellas actividades que surgen de un día para otro y tienen de alguna forma un vínculo con alguna institución del gobierno, este tipo de actividades maneja bloques especiales de horas, es decir, a diferencia de las ordinarias que usan bloques de dos horas cada una. Entonces estas actividades especiales pueden incluir hasta 6 horas en un solo día. Para registrarse a estas actividades es necesario enviar los datos por medio de "INBOX" en la página oficial de Facebook.
