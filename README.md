@@ -44,7 +44,7 @@ Varias avenidas de la ciudad son muy concurridas y en ocasiones personas con dis
 ## Actividades ESPECIALES
 Se denominan así a aquellas actividades que surgen de un día para otro y tienen de alguna forma un vínculo con alguna institución del gobierno, este tipo de actividades maneja bloques especiales de horas, es decir, a diferencia de las ordinarias que usan bloques de dos horas cada una. Entonces estas actividades especiales pueden incluir hasta 6 horas en un solo día. Para registrarse a estas actividades es necesario enviar los datos por medio de "INBOX" en la página oficial de Facebook. Puedes visitar este link para ver las evidencias desde la página oficial de facebook : [Álbum de actividades](https://www.facebook.com/cambiatutiempo/photos_stream?tab=photos_albums)
 
-### Empresas
+# Empresas
 Por cada actividad que se realice exitósamente, el programa te dará "puntos" que pueden ser impresos en módulos distribuidos dentro de la ciudad de Villahermosa, ingresas usando el nombre y contraseña que has creado durante la etapa de registro al programa. AL inicio habían unas 10 empresas, algunas ya no pertenecen al programa y muchas otras más se van sumando a este maravilloso sistema. Visita las empresas actuales a través de este link: [Empresas participantes](http://cambiatutiempo.mx/empresas-participantes/)
 
 ## ¿Cómo cambiar mis puntos?
