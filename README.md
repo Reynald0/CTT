@@ -42,4 +42,20 @@ Unas de las actividades que tienen permanencia en el programa de Cambia tu Tiemp
 Varias avenidas de la ciudad son muy concurridas y en ocasiones personas con discapacidad (aparente) necesitan cruzar de un extremo a otro, para esta actividad existen diversos horarios, los más generales son de 9:00 a 11:00, 13:00 a 15:00 y de 16:00 a 18:00. No siempre son los mismos cruceros; sin embargo, de la misma forma algunos se mantienen durante todo el mes. Los cruceros más obvios son escuelas primarias que se ubican en nuestra ciudad. Hay que orientar a los niños para poder cruzar la calle o en su caso mostrarles la forma más seguro y correcta de poder cruzarla.
 
 ## Actividades ESPECIALES
-Se denominan así a aquellas actividades que surgen de un día para otro y tienen de alguna forma un vínculo con alguna institución del gobierno, este tipo de actividades maneja bloques especiales de horas, es decir, a diferencia de las ordinarias que usan bloques de dos horas cada una. Entonces estas actividades especiales pueden incluir hasta 6 horas en un solo día. Para registrarse a estas actividades es necesario enviar los datos por medio de "INBOX" en la página oficial de Facebook.
+Se denominan así a aquellas actividades que surgen de un día para otro y tienen de alguna forma un vínculo con alguna institución del gobierno, este tipo de actividades maneja bloques especiales de horas, es decir, a diferencia de las ordinarias que usan bloques de dos horas cada una. Entonces estas actividades especiales pueden incluir hasta 6 horas en un solo día. Para registrarse a estas actividades es necesario enviar los datos por medio de "INBOX" en la página oficial de Facebook. Puedes visitar este link para ver las evidencias desde la página oficial de facebook : [Álbum de actividades](https://www.facebook.com/cambiatutiempo/photos_stream?tab=photos_albums)
+
+### Empresas
+Por cada actividad que se realice exitósamente, el programa te dará "puntos" que pueden ser impresos en módulos distribuidos dentro de la ciudad de Villahermosa, ingresas usando el nombre y contraseña que has creado durante la etapa de registro al programa. AL inicio habían unas 10 empresas, algunas ya no pertenecen al programa y muchas otras más se van sumando a este maravilloso sistema. Visita las empresas actuales a través de este link: [Empresas participantes](http://cambiatutiempo.mx/empresas-participantes/)
+
+## ¿Cómo cambiar mis puntos?
+1. Accede al sistema mediante un módulo oficial de Cambia Tu Tiempo.
+2. Selecciona la empresa.
+3. Selecciona el(los) producto(s) y cantidad.
+4. Presiona el botón con el ícono de carrito de compras.
+5. Presiona el botón IMPRIMIR.
+6. Dirígete a la sucursal de dicha empresa.
+7. Intercambia tu ticket por el producto que aparece en el mismo. De ser necesario presenta tu credencial oficial de Cambia Tu Tiempo.
+8. **Disfruta tu producto**
+
+>**Nota:**
+Los tickets son válidos en algunas sucursales de las empresas, esto se puede ver a través del botón "Ver Sucursales" durante la búsqueda del producto y además solo en la capital del estado (Villahermosa). Algunos productos no presentan descuento o promoción alguna por parte de la empresa.
